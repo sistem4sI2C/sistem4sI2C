@@ -1,5 +1,5 @@
 # 🏛️ Instituto de Innovación y Competitividad  
-**Gobierno del Estado de Chihuahua, México**
+**Gobierno del Estado de Chihuahua, Chihuahua, México**
 
 <div align="center">
 
